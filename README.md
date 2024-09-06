@@ -1,5 +1,8 @@
 بسم الله الرحمن الرحيم
+
 رَبِّ اشْرَحْ لِي صَدْرِي وَيَسِّرْ لِي أَمْرِي وَاحْلُلْ عُقْدَةً مِّن لِّسَانِي يَفْقَهُوا قَوْلِي
+Oh lord, expand my chest, ease my affair, and untie the knot in my tongue and perfect my expression.
+
 
 Check how i study to be a Cybersecuriy Analyst [on going]
 
